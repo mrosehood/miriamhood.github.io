@@ -1,1 +1,2 @@
-# miriamhood.github.io
+# Miriam Hood, Ph.D.
+
